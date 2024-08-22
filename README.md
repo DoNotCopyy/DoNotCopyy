@@ -24,6 +24,7 @@ HH / Hb (coughing on this one I hate how badly written they are but I'm there fo
 /// creepypasta (teehee)
 /// Sonic/sonic.exe (I'm learning istg fleet) 
 /// Bendy and the ink machine (I love bendy, second game was fucking cool) 
+/// MADK (I-... yeahhhh I love freaky horny demons)
 
 
 Artists I love :
