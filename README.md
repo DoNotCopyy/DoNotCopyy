@@ -1,5 +1,5 @@
 Meoooww, know more about me ig ?
-Hihihihi, first of all, the name is Haru/shu call me whatever you want seriously , So I have rules of my own if you want to talk / be friends so:
+Hiiii , first of all, the name is Haru/shu call me whatever you want seriously , So I have rules of my own if you want to talk / approach me as a decent human being, so let's begin : 
 
 1.C + H is fine by me, just don't be weird about it. (C + H is not allowed whenever I'm with friends)
 
