@@ -9,7 +9,7 @@ Hiiii , first of all, the name is Haruni/haru/shu call me whatever you want seri
 
 4.Don't be 'quirky' around me / full of yourself, I srsly will not like talking to you
 
-5.don't vent/mention problems to me I deal with my own, thank you <3 (unless close friends that I ALLOW to talk to me)
+5.don't vent/mention problems to me I deal with my own, thank you <3 (unless close friends)
 
 6.do not make sucidial/ 'Dark humor' jokes, especially as S/a and self exil because I am very sensitive to these topics and I think they are very important and not 'fucking funny'
 
