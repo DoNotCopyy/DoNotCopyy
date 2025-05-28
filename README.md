@@ -1,24 +1,22 @@
 Meoooww, know more about me ig ?
-Hiiii , first of all, the name is Haruni/haru/shu call me whatever you want seriously , So I have rules of my own if you want to talk / approach me as a decent human being, so let's begin : 
+Hiiii , first of all, the name is Haruni/haru/shu call me whatever you want seriously (actually don't) , So I have rules of my own if you want to talk / approach me as a decent human being, so let's begin : 
 
 1.C + H is fine by me, just don't be weird about it. (C + H is not allowed whenever I'm with friends)
 
-2.Respect my boundaries !! I don't like heavy flirting / sexualizing, it isn't my thing and I will srsly not vibe with you babes <3 + Minor !! unless ya wanna be a pedophile
+2.Respect my boundaries !! I don't like heavy flirting / sexualizing, it isn't my thing and I will srsly not vibe with you babes <3 + Minor !! 
 
 3.Ships / rps dni!! (I will bully you.)
 
 4.Don't be 'quirky' around me / full of yourself, I srsly will not like talking to you
 
-5.don't vent/mention problems to me I deal with my own, thank you <3 (unless close friends)
+5.don't vent/mention problems to me I gen dc <3 (unless close friends)
 
-6.do not make sucidial/ 'Dark humor' jokes, especially as S/a and self exil because I am very sensitive to these topics and I think they are very important and not 'fucking funny'
+6.do not make sucidial/ 'Dark humor' jokes, especially as S/a and self exil because I think they are serious topics and not 'fucking funny'
 
 topics / fandoms I'm interested in :
 
-HH / Hb (coughing on this one I hate how badly written they are but I'm there for the chaos / eve, lilith, and mammon ngl)
 //// Bloodborne ! (please talk about this fucking dead ass game Il it sm, mergo's wet nurse btw <3333)
 /// nyan neko sugar girls (yes.)
-/// genshin impact / honkai star rail (not that engaged but I'm cool)
 /// vocaloid (meooow)
 /// fear and hunger (I love this game sm, termina is my fav!!)
 /// creepypasta (teehee)
@@ -34,6 +32,7 @@ Divide the day (listen to them, they're fucking cool)
 /// Mindless self indulgence
 /// Weyes blood
 /// the orion experience
+/// twin temple 
+///Malice Mizer 
 
-
-toodle-oo !!!!
+I am a cunt and ik it 
