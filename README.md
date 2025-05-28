@@ -5,7 +5,7 @@ Hiiii , first of all, the name is Haruni/haru/shu call me whatever you want seri
 
 2.Respect my boundaries !! I don't like heavy flirting / sexualizing, it isn't my thing and I will srsly not vibe with you babes <3 + Minor !! 
 
-3.Ships / rps dni!! (I will bully you.)
+3.Ships / rps dni, Racist, boring, proshipper, into kids, downbad for horrible human beings dni!!! fuck you 
 
 4.Don't be 'quirky' around me / full of yourself, I srsly will not like talking to you
 
